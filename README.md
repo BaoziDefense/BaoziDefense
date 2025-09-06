@@ -1,1 +1,1 @@
-### Study hard, play harder.
+### Talk is cheap, show me the prompt.
